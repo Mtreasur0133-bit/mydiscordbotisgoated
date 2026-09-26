@@ -1,0 +1,2 @@
+# mydiscordbotisgoated
+CDN Hosted Assets
